@@ -1,1 +1,1 @@
-
+faylni yuklamadim
